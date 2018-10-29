@@ -21,3 +21,4 @@ In both of these cases, although both girls work hard and unreasonable hours, th
 
 There is a sense of urgency to focus on productivity all across the board. The architecture firm needs a good reputation and rhythm that requires constant cultivation from leaders and employees alike. Revolve needs a brand that they can sell in order to build their audience which requires the same dedication. With the simultaneous promise of success and threat of failure so imminent, so much of this fortune relies on the hyperfocus from all people involved. This as a result creates an environment in which they feel like they need to constantly be working to secure the success of their company.
 
+
